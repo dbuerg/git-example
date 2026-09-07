@@ -84,3 +84,15 @@ The cooking steps...
 * 2 tbsp unsalted butter (cut into small cubes)                                                                                                         For the Crust & Finish:                                                                                                                                 * 1 package refrigerated pie crusts (contains 2 crusts for the bottom and top)
 * 1 egg + 1 tbsp milk or cream (beaten together for the egg wash)
 * 1 tbsp sugar (coarse sanding sugar or regular white sugar for sprinkling)
+
+
+------------------------------                                              ## 🛒 Ingredients                                                           For the Filling:                                                                                                                                        * 6–7 large apples (preferably a mix of tart Granny Smith and sweet Honeycrisp, peeled, cored, and thinly sliced)
+* ½ lemon (juice only, approx. 1–2 tbsp)
+* ½ cup (100g) brown sugar (packed)
+* ½ cup (100g) white granulated sugar
+* 3 tbsp all-purpose flour (to thicken the fruit juices)
+* 1 ½ tsp ground cinnamon
+* ¼ tsp ground nutmeg
+* 2 tbsp unsalted butter (cut into small cubes)                                                                                                         For the Crust & Finish:                                                                                                                                 * 1 package refrigerated pie crusts (contains 2 crusts for the bottom and top)
+* 1 egg + 1 tbsp milk or cream (beaten together for the egg wash)
+* 1 tbsp sugar (coarse sanding sugar or regular white sugar for sprinkling)
