@@ -34,7 +34,7 @@ For the Crust & Finish:
 
    1. Unroll the first pie crust and gently press it into the bottom and up the sides of your pie dish, leaving a slight overhang.
    2. Pour the apple filling (including any accumulated juices) into the crust, pressing them down slightly so they are tightly packed. Dot the top of the apples evenly with the butter cubes.
-   3. Unroll the second pie crust and place it over the filling. Alternatively, you can cut it into strips to weave a classic lattice top.
+   3i Unroll the second pie crust and place it over the filling. Alternatively, you can cut it into strips to weave a classic lattice top.
    4. Press the edges of the top and bottom crusts together to seal them. Fold the overhang under and crimp or flute the edges using your fingers or a fork.
    5. Important for a full top crust: Cut 3–4 slits in the center of the top crust with a sharp knife to allow steam to escape while baking.
 
@@ -50,6 +50,18 @@ For the Crust & Finish:
 
 This pie is best served warm with a scoop of vanilla ice cream (à la mode) or whipped cream!
 ------------------------------
-Would you like to try something different next? I can show you how to make the pie crust completely from scratch or guide you through making a Dutch apple pie with a brown sugar crumble topping instead.
 
 
+
+The ingredients one more time:
+
+* 6–7 large apples (preferably a mix of tart Granny Smith and sweet Honeycrisp, peeled, cored, and thinly sliced)
+* ½ lemon (juice only, approx. 1–2 tbsp)
+* ½ cup (100g) brown sugar (packed)
+* ½ cup (100g) white granulated sugar
+* 3 tbsp all-purpose flour (to thicken the fruit juices)
+* 1 ½ tsp ground cinnamon
+* ¼ tsp ground nutmeg
+* 2 tbsp unsalted butter (cut into small cubes)                                                                                                         For the Crust & Finish:                                                                                                                                 * 1 package refrigerated pie crusts (contains 2 crusts for the bottom and top)
+* 1 egg + 1 tbsp milk or cream (beaten together for the egg wash)
+* 1 tbsp sugar (coarse sanding sugar or regular white sugar for sprinkling)
