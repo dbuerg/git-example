@@ -1,3 +1,3 @@
-A small repository abour recipies.
+A small repository about recipes.
 
-This repo contains multiple recipies, to learn the basics of git.
+This repository contains multiple recipies, to learn the basics of git.
