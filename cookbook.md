@@ -8,7 +8,7 @@ Here is a classic recipe for a traditional American Apple Pie with a spiced, jam
 ## 🛒 Ingredients
 For the Filling:
 
-* 6–7 large apples (preferably a mix of tart Granny Smith and sweet Honeycrisp, peeled, cored, and thinly sliced)
+* 6–7 large apples (preferably a mix of tart Granny Smith and sweet honey, peeled, cored, and thinly sliced)
 * ½ lemon (juice only, approx. 1–2 tbsp)
 * ½ cup (100g) brown sugar (packed)
 * ½ cup (100g) white granulated sugar
@@ -55,7 +55,7 @@ This pie is best served warm with a scoop of vanilla ice cream (à la mode) or w
 
 The ingredients one more time:
 
-* 6–7 large apples (preferably a mix of tart Granny Smith and sweet Honeycrisp, peeled, cored, and thinly sliced)
+* 6–7 large apples (preferably a mix of tart Granny Smith and sweet honey, peeled, cored, and thinly sliced)
 * ½ lemon (juice only, approx. 1–2 tbsp)
 * ½ cup (100g) brown sugar (packed)
 * ½ cup (100g) white granulated sugar
@@ -74,7 +74,7 @@ The cooking steps...
 
 
 
-------------------------------                                              ## 🛒 Ingredients                                                           For the Filling:                                                                                                                                        * 6–7 large apples (preferably a mix of tart Granny Smith and sweet Honeycrisp, peeled, cored, and thinly sliced)
+------------------------------                                              ## 🛒 Ingredients                                                           For the Filling:                                                                                                                                        * 6–7 large apples (preferably a mix of tart Granny Smith and sweet honey, peeled, cored, and thinly sliced)
 * ½ lemon (juice only, approx. 1–2 tbsp)
 * ½ cup (100g) brown sugar (packed)
 * ½ cup (100g) white granulated sugar
@@ -86,7 +86,7 @@ The cooking steps...
 * 1 tbsp sugar (coarse sanding sugar or regular white sugar for sprinkling)
 
 
-------------------------------                                              ## 🛒 Ingredients                                                           For the Filling:                                                                                                                                        * 6–7 large apples (preferably a mix of tart Granny Smith and sweet Honeycrisp, peeled, cored, and thinly sliced)
+------------------------------                                              ## 🛒 Ingredients                                                           For the Filling:                                                                                                                                        * 6–7 large apples (preferably a mix of tart Granny Smith and sweet honey, peeled, cored, and thinly sliced)
 * ½ lemon (juice only, approx. 1–2 tbsp)
 * ½ cup (100g) brown sugar (packed)
 * ½ cup (100g) white granulated sugar
